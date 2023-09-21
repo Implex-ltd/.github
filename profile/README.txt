@@ -5,4 +5,3 @@
          /_/               
 
 ⛶ https://t.me/implex_ltd
-⛶ https://discord.gg/mDzDyUWehH
