@@ -14,4 +14,4 @@ If you need a full time developer, contact me.
 ```
 - https://t.me/nikolahellatrigger
 - https://github.com/0xF7A4C6
-- https://discord.gg/gXUW7bhrT2
+- https://discord.gg/KAM9rNSc
