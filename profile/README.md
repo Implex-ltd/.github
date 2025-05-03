@@ -12,6 +12,5 @@ Take the time to look and learn, instead of copying without thinking, because it
 
 If you need a full time developer, contact me.
 ```
-- https://t.me/nikolahellatrigger
+- https://t.me/nikolahellatrigger1337
 - https://github.com/0xF7A4C6
-- https://discord.gg/KAM9rNSc
